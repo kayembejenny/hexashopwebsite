@@ -1,0 +1,1 @@
+ce site web, est un site de ecommerce comme vous pouvez le remarauer alors cedernier permet de faire des achats en ligne et de mettre au panier 
